@@ -39,7 +39,7 @@ Watch this quick video to learn how you can set this up in less than 6 mins - [V
 
 
 ## 📞 Support
-For any support or help, please shoot me an email at **shruti.sridharan22@gmail.com**.
+For any support or help, please shoot me an email at **goushalshreyansh@gmail.com**.
 
 
 ## 🔗 Share
